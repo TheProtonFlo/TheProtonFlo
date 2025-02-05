@@ -1,4 +1,4 @@
-Hey ! (｡･∀･)ﾉﾞ
+Hey ! ( ･∀･)ﾉﾞ
 
 I'm ProtonFlo, a lil'dev who want to progress into game programming for my studies and to help later to make my project come true ! :)
 
